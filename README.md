@@ -1,1 +1,1 @@
-My name is Rishabh and today is Wednesday, September 9. Hello all
+My name is Rishabh and today is Thursday, September 10. Hello all
