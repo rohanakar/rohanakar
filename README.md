@@ -1,1 +1,1 @@
-My name is Rishabh and today is Sunday, November 22. Hello all. The date will automatically update to today's date in case you did not notice.
+My name is Rishabh and today is Monday, November 23. Hello all. The date will automatically update to today's date in case you did not notice.
